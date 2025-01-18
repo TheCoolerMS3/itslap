@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on: [Pluto](https://pluto.nxw.pw)
 - 🌱 I’m currently learning: More Web Dev skills
 - 📫 You can DM me on discord "itslap"
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: She/Her
 <hr>
 
 ### My Stats
